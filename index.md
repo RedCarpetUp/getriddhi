@@ -1,4 +1,4 @@
-## Welcome to GetRiddhi
+## GetRiddhi - Get Ready to Unconfuse Finance
 
 
 
